@@ -25,7 +25,7 @@ Feel free to reach out via email or LinkedIn for collaboration or consultation o
 
 ### 🌐 Find Me Online
 - **GitHub Portfolio:** [github.com/Alok-Pal](https://github.com/Alok-Pal)
-- **Resume:** [View My Resume](https://drive.google.com/drive/folders/1kKLykGFxARXJoewEqDbO2W12-Qv-Z97E)
+- **Resume:** [View My Resume](https://drive.google.com/file/d/1vRYSvlGd19EvewZF3SLycXL3jm6ftAGQ/view)
 
 ---
 
